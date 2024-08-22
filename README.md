@@ -1,3 +1,2 @@
 # farmidian
--credits in desc.
--tysm jieying (linjieyingg), alberto, and jackie!!!!!
+-credits in desc. + tysm jieying (linjieyingg), alberto, and jackie!!!!!
