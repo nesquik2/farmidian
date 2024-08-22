@@ -1,2 +1,3 @@
 # farmidian
-APCS final project from 2023
+-credits in desc.
+-tysm jieying (linjieyingg), alberto, and jackie!!!!!
